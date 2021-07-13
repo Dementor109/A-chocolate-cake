@@ -1,1 +1,1 @@
-# A-chocolate-cake
+# The recipe instructs one to make a simple, tasty and delicious chocolate cake.

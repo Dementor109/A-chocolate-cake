@@ -1,0 +1,1 @@
+# The chocolate cake is composed of the following ingredients with exact measurements - 1 cup unsweetened cocoa powder, 2 1/2 cups all - purpose flour, 2 cups of sugar, 1 1/2 teaspoons baking powder, 1 teaspooon baking soda, 3 large eggs, 3/4 cup vegetable oil, 1/2 cup sour cream, 2 teaspoons vanilla extract. 
